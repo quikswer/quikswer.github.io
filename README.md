@@ -1,1 +1,0 @@
-# quikswer.github.io
